@@ -4,4 +4,4 @@ About me
 
 Languages and Tools
 
-Follow ME
+Follow Me
